@@ -1,2 +1,1 @@
-# latihan-github
-Kerjain ya :D
+# Arka pendek
